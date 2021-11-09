@@ -1,2 +1,0 @@
-# whios
-By Mrjoj Alshrari
